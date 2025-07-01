@@ -5,7 +5,7 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...I'm working crypto currency &Airdrop promotion all business work 
+- 🔭 I’m currently working on ...I'm working crypto currency &Airdrop promotion all business work and systems development 
 - 🌱 I’m currently learning ...Accounting 
 - 👯 I’m looking to collaborate on ...
 - 🤔 I’m looking for help with ...
